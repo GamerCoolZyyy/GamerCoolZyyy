@@ -1,0 +1,1 @@
+Yo i am GamerCoolZ just a beginer ngl i know only java and htlm (i forgot html) i just got to know about scanner class in java this year idk what am i even doing on this platform prolly i am here just for fun.
